@@ -1,1 +1,1 @@
-My second readme file
+positive mindset i can win
